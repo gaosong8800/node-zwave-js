@@ -50,3 +50,8 @@ If you'd like to help support the future of the project and make the Z-Wave worl
 <p align="center">
   <a href="https://www.nabucasa.com/" target="_blank"><img src="docs/sponsors/nabucasa.png" width="320" alt="Nabu Casa" /></a>
 </p>
+
+
+哈哈哈哈哈哈
+
+dhahdadadjhajdjajddklkal
